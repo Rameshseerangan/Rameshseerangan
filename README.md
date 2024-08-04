@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **rameshseerangan70@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/19ajJWnLowIqa-dqbrCrcruNuo3Bb7RgZ?usp=sharing](https://drive.google.com/drive/folders/19ajJWnLowIqa-dqbrCrcruNuo3Bb7RgZ?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/drive/folders/19ajJWnLowIqa-dqbrCrcruNuo3Bb7RgZ?usp=sharing](https://drive.google.com/file/d/1lwzBMXI6k-_qnlS_oHB-9qOh1lyKv7fr/view?usp=sharing))
 
 - ⚡ Fun fact **Better time for coding🧑‍💻??.night🌃**
 
