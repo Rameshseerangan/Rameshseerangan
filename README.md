@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **MERN FullStack Development**
 
-- 💬 Ask me about **Python,Sql,Html,Css,wordpress,Django,JavaScript,Data analysis,Datacollection**
+- 💬 Ask me about **Python,Sql,Html,Css,tailwindcss, reactjs,wordpress,Django,JavaScript,Data analysis,**
 
 - 📫 How to reach me **rameshseerangan70@gmail.com**
 
